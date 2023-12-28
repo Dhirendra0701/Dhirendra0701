@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Dhirendra Kumar Yadav
 - 👀 I've Completed Google Data Analytics Professional Certification
 - 🌱 I’ve also completed some other certifications from Udemy
-- 💞️ I’m looking for a Job here
+- 💞️ I’m looking for a Job here. Have a look on my Project work.......
 - 📫 How to reach me.....
 -                     dhirendrayadav0701@gmail.com
 
